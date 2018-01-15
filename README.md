@@ -14,4 +14,4 @@
 2. WOWOWO
  + cooooool
  + not so cooool
-#  [hse](https://solo.nabiraem.ru/ru/overview/typingtest)
+#  [вышка рулит!!!](https://solo.nabiraem.ru/ru/overview/typingtest)
